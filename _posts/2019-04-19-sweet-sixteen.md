@@ -4,7 +4,7 @@ title: "Sweet Sixteen"
 date: 2019-04-19
 ---
 
-I’d been sixteen years old for a few weeks but life had not become more exciting. Sixteen was the age when I could legally have sex. Sixteen was the age when I could legally smoke. I’d done neither of these things. A few weeks-in and sixteen was not living up to the hype.
+I’d been sixteen years old for a few weeks and nothing had happened. Sixteen was the age when I could legally have sex. Sixteen was the age when I could legally smoke. I’d done neither of these things. A few weeks-in and sixteen was not living up to the hype.
 
 It was early 1997. I was a young man living in the middle of England. In Loughborough, to be precise. I’d smoked once at a playground for a dare when very young, but had run-home and told my parents straight away. I was let-off for being honest and didn’t do it again. I’d definitely not had sex. I was a straight-A student, in the swim team. I’d studied hard, trained hard, and behaved myself. It felt as though life owed me some kind of recognition of this when I turned sixteen. It felt as though something should happen.
 
