@@ -1,14 +1,14 @@
 ---
-layout: Dogma Photography"
+layout: post
+title: "Dogma Photography"
 date: 2019-10-26
 ---
 
 Capture a moment
 
-Composition
-
 Ignore the technology when taking a photo
 
+Composition
 Rule of thirds
 
 Light
